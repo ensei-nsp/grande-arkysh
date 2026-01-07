@@ -1,0 +1,12 @@
+[[Bem Vinda]] curiosa. Este é um artigo sobre **Teopsis**.
+Pode ser encontrado na super-categoria [[Filosofia]].
+
+**Teopsis** designa o estado mental e a disciplina constante necessários para manipular a [[Teurgia]]. Na estrutura da Fé dos Passos, este estado é conhecido como **Graça**, representando uma sintonia voluntária com as correntes divinas que permeiam o [[Ithram|Véu]]. Constitui uma orbita simbólica em torno do divino que capacita o mortal a canalizar forças sobrenaturais
+
+Opõe-se à Teopsis o estado de **Antiteopsis**, onde o indivíduo cultiva deliberadamente uma profanidade persistente, um afastamento ativo da Graça que funciona como um escudo contra influências teúrgicas. Embora considerado blasfema pelas religiões estabelecidas de [[Terras Mundanas de Idûn|Idûn]], a Antiteopsis confere proteção tangível contra interferências de rituais divinos, torna o praticante invisível aos sinais celestes e, o mais notável, permite a manipulação segura da perigosa [[Vesânia]].
+
+A manutenção prolongada da Teopsis, contudo, não é isenta de custos. Sua intensidade direta frequentemente conduz a um gradual esvaziamento dos desejos mundanos, uma apatia perigosa e uma sensorialidade tão afinada que transforma as trivialidades da existência comum em experiências insuportáveis. Mestres teurgos advertem constantemente sobre o limiar em que o mundo material se empalidece irreversivelmente perante o foco no divino.
+
+Desta tensão surgiu a **Periteopsis**, uma hipótese erudita circulante entre os [[Feitiçaria|feiticeiros]]. Esta doutrina experimental propõe a alternância cíclica e proposital entre os estados de Teopsis e Antiteopsis. Seus teóricos sustentam que a verdadeira maestria da [[Manifestação Etérea]] pela Teurgia exige esta oscilação, utilizando fases de profanidade calculada para evitar a estagnação arcana e o embotamento emocional, retornando subsequentemente à Graça com a perspectiva renovada.
+
+A mestria da Periteopsis reside precisamente em permitir que o agente colha os frutos de ambas as disciplinas nos momentos mais propícios: aproxima-se da Graça para canalizar o divino com clareza e potência máximas, e recorre à Antiteopsis quando necessita de imunidade ritual ou deve manejar a corruptora Vesânia.

@@ -1,0 +1,25 @@
+[[Bem Vinda]] curiosa. Este é um artigo sobre **Gigantes**.
+Pode ser encontrado na super-categoria [[As Principais Ameaças]].
+
+Os Gigantes não são criaturas deste mundo. São aberrações titânicas, forjadas nas entranhas dos primeiros [[Vazio|Vazios]]. Não há registros de sua existência antes do [[Conclave das Nove Torres]], e sua própria natureza é um espelho dos pecados e falhas mortais. Pouco se sabe sobre suas sociedades — ou mesmo se são entidades biológicas, sujeitas às necessidades da carne. A maioria dos mortais passa os dias em súplica silenciosa, agradecendo por esses colossos permanecerem confinados em seus domínios sombrios.
+
+# A Gigantomania e os Gigantólogos
+O contraste entre a presença acessível desses titãs e o vácuo do conhecimento sobre eles gerou uma febre entre os feiticeiros andarilhos do último século. Muitos acreditam, com fervor quase religioso, que os segredos para transcender o atual patamar da magia residem com os Gigantes. Enquanto o povo comum os chama de maníacos, entre eles intitulam-se "Gigantólogos". Em nome do justo, houve uma explosão na quantidade — e qualidade — de literatura esotérica sobre o assunto.
+
+# Os Clãs
+Sete são conhecidos. Cada um é possui forma única, tão radical em corpo e hábitos que levanta dúvidas se deveriam sequer ser classificados como a mesma raça. Contudo, compartilham uma origem: nasceram dos Vazios.
+
+# [[Gigantes das Colinas]]
+Monstruosidades esqueléticas de cinco metros, com membros multiarticulados e pele translúcida que revela vísceras. Habitam colinas coroadas por estruturas construídas com fósseis de titãs. São parasitas solitários da memória, aglomerando-se em locais de história concentrada. Sua ameaça é consumir o significado de marcos históricos, fazendo civilizações esquecerem suas origens. Em combate, suas garras apagam horas ou anos da mente das vítimas, deixando um vazio agonizante de algo faltante.
+# [[Gigantes de Fogo]]
+Corpos musculosos envoltos em pele translúcida, com veias de sangue incandescente. No lugar da cabeça, uma coroa-galhada de ferro com will-o'-wisps agonizantes. Habitam catedrais vulcânicas, vivendo sob uma hierarquia perversa onde escravizam mortais. Sua ameaça é sugar a ambição e a paixão dos intrusos, substituindo-as por uma letargia melancólica. As vítimas perdem toda a motivação, e as paixões roubadas alimentam o sangue incandescente do gigante.
+# [[Gigantes da Rocha]]
+Corpos esguios de alabastro com rachaduras que revelam veios de metal pulsante. Seus olhos são cristais hipnóticos e suas cabeças são coroadas por filamentos de quartzo que emitem uma melodia mental. Habitam desfiladeiros e necrópoles, conectados psiquicamente à Rainha-Altar. Sua ameaça é enfeitiçar intrusos com sua melodia e olhar, despertando um desejo profano de segui-los. As vítimas são levadas para serem drenadas pela Rainha-Altar, tornando-se estátuas servas.
+# [[Gigantes de Gelo]]
+Espectros gelados com torsos esqueléticos e rostos de gelo líquido que espelham as feições de suas vítimas. Sua armadura é um caos de gelo e fragmentos saqueados. Nômades, acampam em ruínas que soterram em neve após saquear. Sua lei é a inveja; duelam entre si por espólios cobiçados. Sua ameaça é uma perseguição rancorosa se cobiçarem algo seu, envenenando provisões ou soltando feras para destruir o que você ama.
+# [[Gigantes das Nuvens]]
+Criaturas com cabeças de concha iridescente e um torso cavernoso que exibe seu tesouro pilhado. Arrastam uma liteira ossuda sobrecarregada de pilhagens e corpos mumificados. Seus corpos são seus lares, acumulando pilhagens até se tornarem montanhas ambulantes de luxo podre. Repudiam a comunidade, travando guerras de troca traiçoeira quando se cruzam. Sua ameaça principal é sua ganância insaciável, oferecendo tesouros envenenados para levar mais do que concedem em qualquer interação.
+# [[Gigantes da Tempestade]]
+Colossos híbridos de humanoide e monstro marinho, com nadadeiras bioluminescentes e uma boca cheia de dentes serrados. Habitam cidades afundadas construídas sobre carcaças de leviatãs. Vivem em clãs rigidamente hierárquicos. Sua ameaça é corromper o mar ao redor, enlouquecendo cardumes e tornando a água ácida. Atacam por uma vingança superficial, acreditando que todos os navios repetem o pecado de uma "Arca Maldita" ancestral, afogando marinheiros em altares de ossos.
+# [[Gigantes do Conclave]]
+Colossos de mármore negro com baixos-relevos que narram feitos épicos distorcidos e falsos. Seus rostos são máscaras lisas e sem features. Vivem às margens do Vazio do Conclave em torres de pedra roubada, onde escravizam artesãos para cinzelar seu legado de mentiras. Acreditam ser os únicos seres conscientes. Sua ameaça são sussurros mentais que insuflam hubris em guerreiros e magos, atraindo-os para serem esmagados e ter suas histórias roubadas para engrossar as mentiras na pele do gigante.

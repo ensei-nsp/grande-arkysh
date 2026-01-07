@@ -1,0 +1,1 @@
+Líder dos [[Mestre-artesão|mestre-artesãos]] nas [[Docas (Portamaré)|docas]] de [[Portamaré]], ume [[Rasante]] na casa dos trinta anos. Resolve disputas com mão firme e carisma imbatível, conhecendo cada segredo das oficinas. Organiza o leilão anual de artefatos raros e é ume negociante lendárie, conhecide por vender peixe para pescador. Agnóstique.

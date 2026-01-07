@@ -1,0 +1,10 @@
+[[Bem Vinda]] curiosa. Este é um artigo sobre **Daravaresh**.
+Pode ser encontrado na super-categoria [[Principais Religiões]].
+
+A vida espiritual armanshe tem um canto próprio: uma prática xamânica conhecida como Daravaresh, centrada em talismãs que, acredita-se, permitem aos mediadores entrar em estado alterado e tocar fragmentos da divindade. Para os Armanshe, o mundo físico foi desgarrado do seio de [[Zaham-un-Mahaz, o Todo que é Um]], uma divindade de infinitas manifestações que não pode ser contida num só corpo.
+
+Essas manifestações são chamadas de Faces, e cada uma se apresenta ao mundo por meio de um xamã que a encarna. Nenhuma Face é vista como um deus separado, mas como expressão parcial de Zaham-un-Mahaz. Para serem lembradas, recebem nomes funcionais, invocadas como “Aquela que cura enfermos”, “Aquele que traz o grão” ou “Aquela que julga os santos”.
+
+Os xamãs trabalham através de talismãs — ossos entalhados, contas de vidro, discos de bronze e fragmentos de pedra gravados com marcas — que modulam a relação com o [[Ithram|Véu]]. Mas o objeto por si só não basta: a invocação exige estudo, disciplina e meditação. Por isso cada xamã dedica-se a uma única Face durante toda a vida; tentar carregar mais de uma seria como sustentar um peso que despedaça a mente.
+
+Cada cidade armanshe ergue múltiplos templos, e cada templo honra um xamã vivo reconhecido por encarnar uma Face específica. Esse xamã treina um aprendiz que herdará tanto o talismã quanto a tradição, perpetuando a linhagem espiritual. Os devotos frequentam templos distintos conforme suas necessidades e muitas vezes peregrinam até outras cidades quando sua própria não abriga o xamã cuja Face lhes serve. Essa geografia da devoção alimenta as estradas armanshe e entrelaça-se com as rotas comerciais, pois fé, tráfico e política raramente caminham separados nas gargantas da península.

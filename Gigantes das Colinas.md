@@ -1,0 +1,8 @@
+[[Bem Vinda]] curiosa. Este é um artigo sobre **Gigantes das Colinas**.
+Pode ser encontrado na super-categoria [[Gigante]].
+
+Monstruosidades esqueléticas de cinco metros, com membros multiarticulados como pernas de aranhas gigantes. Braços perpetuamente curvados em uma súplica distorcida, terminando em garras retorcidas de osso exposto. A pele translúcida, colada ao esqueleto, revela vísceras pulsantes e uma barriga cavernosa onde sombras se contorcem. A bocarra descomunal rasga o rosto até o esterno, repleta de dentes serrilhados que brilham como porcelana quebrada. Olhos leitosos, sem pupilas, refletem névoas de eras esquecidas. Cabelos emaranhados como raízes vivas sugam umidade do ar, enroscando-se em trapos de seda corroídos por mariposas.
+## Habitat e Comunidade:
+Dominam colinas coroadas por casas construídas com fósseis de titãs antigos: vértebras erguidas como torres, crânios esmagados em mosaicos de pavimento. As estruturas são posta juntas com piche negro. Não formam comunidades — são parasitas solitários, mas aglomeram-se onde detectam o cheiro de história concentrada: bibliotecas, monumentos, cidades em ruínas.
+## Ameaça:
+São necrófagos da memória. Ao destruir um marco histórico, consomem o significado que ele carregava. Vilas esquecem por que cultuam seus deuses, exércitos largam armas sem lembrar suas causas, magos perdem feitiços ligados a locais sagrados. Em combate, suas garras desferem feridas que apagam horas, dias ou anos da mente das vítimas. O pior? As vítimas sabem que algo falta, como um vazio mastigando suas almas.

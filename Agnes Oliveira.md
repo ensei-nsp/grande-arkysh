@@ -1,0 +1,1 @@
+[[Bruxa]] [[Sans-Chapeau]] de [[Vau Ruço]] de [[Portamaré]], é uma nativa local [[Colosso]] na faixa dos sessenta anos, de aparência severa. Sempre envolta em xales coloridos, é famosa por seus remédios amargos de ervas venenosas, suas histórias assustadoras e seu hábito de conversar com as paredes de sua cabana, que dizem lhe responder. Segue o culto às [[Moras]].

@@ -1,0 +1,8 @@
+[[Bem Vinda]] curiosa. Este é um|a artigo sobre **Gigantes da Rocha**.
+Pode ser encontrado na super-categoria [[Gigante]].
+
+Altos e esguios, seus corpos evocam estátuas sacras profanadas, esculpidas em alabastro. Rachaduras serpenteiam pela pele pétrea, revelando veios pulsantes de ouro vil e prata corrompida — como sangue metálico escorrendo de uma ferida. Os olhos, cristais multifacetados, refletem os desejos mais íntimos de quem ousa encará-los. Suas cabeças são coroadas por cascatas de filamentos de quartzo, que colidem suavemente como sinos de vento, emitindo uma melodia que se infiltra na mente, transformando o medo em desejo.
+## Habitat e Comunidade:
+Dominam desfiladeiros curvos, escondendo em suas entranhas necrópoles esquecidas. Sua mente coletiva ecoa como um coral de vozes sussurrantes, uma teia psíquica que os une à Rainha-Altar — uma entidade sagrada no coração da montanha, formada por centenas de gigantes fundidos numa única massa pulsante de pedra. Onde deveria haver um rosto, persiste apenas um vazio, rodeado por mãos petrificadas em prece.
+## Ameaça:
+São caçadores que convertem luxúria em armadilha. Sua melodia e o brilho hipnótico dos olhos despertam nos intrusos um anseio profano por tocá-los e segui-los. As vítimas, enfeitiçadas, marcham até a Rainha-Altar para serem drenadas. O que resta é um corpo esvaziado, revestido de alabastro — mais um servo para a legião de estátuas que guardam os corredores, suas faces preservadas em êxtase terminal.

@@ -1,0 +1,1 @@
+Mercador de peixes [[Terrano]] das [[Docas (Portamaré)|docas]] de Portamaré, por volta dos cinquenta anos e de origem [[Roszka]]. Ignorado por muitos por pregar incessantemente seu deus estrangeiro, o [[Adonimismo]], é tolerado por prever tempestades com precisão bizarra. Exala um odor permanente de peixe.

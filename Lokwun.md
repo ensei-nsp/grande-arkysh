@@ -1,0 +1,16 @@
+[[Bem Vinda]] curiosa. Este é um artigo sobre **Lokwun** nas [[Terras Mundanas de Idûn]].
+Pode ser encontrado na super-categoria [[Os Povos]].
+
+Entre as florestas temperadas do norte de Idûn floresce a cultura Lokwun, espalhada por terras de médio porte, mas marcada por uma população vigorosa e orgulhosa. Sua identidade se expressa tanto na força de seus ritos quanto na memória de sua rebelião. A região se divide em quatro subterritórios — Kanlok, Zhelok, Wanlok e Linlok — cada qual com variações próprias, mas unidos por uma mesma raiz espiritual.
+
+O coração da cultura pulsa em duas cidades. [[Tach]], erguida por um povo mais antigo e depois tomada pelos Lokwun, cresceu até se tornar a metrópole e o centro político da região. Já Wanmei, fundada nos flancos de um pico solitário, foi o primeiro assentamento verdadeiramente lokwun. Lá, como um ninho cravado na montanha, os primeiros rebeldes ergueram a Torre Shemao, fortaleza e símbolo vivo de sua determinação. Guardas dedicados ainda hoje mantêm vigília nas salas da Torre, que permanece ativa e carregada de significado.
+
+Foi nesse tempo que surgiu [[Ganru Kerai|Ganru]], o instigador da grande rebelião. Quando o Império Unificado começou a se fragmentar, ele usou o momento para acender o espírito de insubmissão entre os Lokwun, levando-os à luta. Após sua morte, passou a ser lembrado como [[Ganru Kerai|Kerai]], a autoridade trovejante, nome que ecoa até hoje como mito ancestral. Sua herança moldou toda a identidade do povo: um Lokwun pode ser teimoso, difícil de dobrar, mas é sempre mais difícil ainda de derrotar.
+
+# O Akaredo
+O [[Akaredo]] é a fé animista lokwun, fundamentada nos Cinco Aspectos do Mundo Natural (Rikan, Shuen, Hogai, Gozan, Hasoyin). Sua prática central é o [[Linkan]], um totem comunal construído coletivamente que define um território sagrado ([[Duryen]]). Sem templos ou clero organizado, a devoção é dominada pelos [[Fashu]], ancestrais que ascendem como juízes espirituais. A religião orienta a medicina e o equilíbrio comunitário, temendo os fiéis a rejeição pós-morte e aspirando tornar-se protetores regionais.
+# Sociedade e Espírito
+Seu caráter, no entanto, se define menos pela forma do corpo e mais pela forma da vontade. A insubmissão é tanto filosofia quanto prática: eles não obedecem a quem não consentem, e essa convicção se traduz em rebeldias cotidianas.
+Sob o domínio do [[Império Divino de Kether]], suas províncias mantêm-se notoriamente independentes. Não são inimigos declarados, mas tampouco súditos dóceis. Entre vizinhos corre o dito: “um Lokwun é difícil de lidar, mas é pior de enfrentar.”
+
+Cada subregião reforça um traço distinto: os Kanlok preservam a ordem e a memória; os Zhelok se destacam pela mobilidade e ferocidade; os Wanlok abrigam o coração urbano e artístico, com Tach como farol; e os Linlok cultivam disciplina e ritos próprios. Unidos, compõem um povo que ergueu raízes firmes, guiados pela lembrança de Ganru-Kerai e pela voz dos Fashu, com a floresta como testemunha de sua obstinada liberdade.

@@ -1,0 +1,1 @@
+[[Conselheiro]] Eleito de [[Portamaré]] morando em [[Clara Côrte]], um homem [[Terrano]] local entre cinquenta e sessenta anos. Elegante e sempre impecável, seu sorriso nunca atinge os olhos. É o responsável pelo funcionamento da cidade, embora ninguém saiba a que custo. Seus jantares políticos são lendários. Segue a [[Sublime Igreja dos Mil Passos|Fé dos Passos]].

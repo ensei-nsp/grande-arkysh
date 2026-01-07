@@ -1,0 +1,1 @@
+[[Bruxo]] [[Sans-Chapeau]] do [[Charco Cinzento]], um homem [[Terrano]] na casa dos trinta anos. Notoriamente silencioso, nunca foi visto comendo ou bebendo. Crianças locais apostam para ver quem consegue fazê-lo falar, um desafio que permanece invicto. Segue o [[Caelismo]].

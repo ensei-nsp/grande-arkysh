@@ -1,0 +1,8 @@
+[[Bem Vinda]] curiosa. Este é um artigo sobre **Gigantes de Fogo**.
+Pode ser encontrado na super-categoria [[Gigante]].
+
+Seus corpos são torres de músculo, envoltos em pele translúcida como vidro manchado, entremeadas por veias que canalizam sangue incandescente — rios de ouro derretido pulsando sob a superfície. Os braços, desproporcionalmente longos, terminam em garras negras que arrastam pelo chão, riscando sulcos fumegantes. No lugar da cabeça, uma coroa-galhada de ferro retorcido emerge do pescoço, cada ponta empalando uma will-o'-wisp agonizante. Movem-se em letargia, a galhada inclinada para frente, como se o peso da própria existência fosse um fardo insuportável.
+## Habitat e Comunidade:
+Reinam em catedrais vulcânicas — cavernas abissais esculpidas por erupções antigas, onde paredes de basalto brilham com veios de obsidiana, lembrando vitrais quebrados. Colunas naturais, altas como torres de igrejas arruinadas, sustentam tetos perdidos em fumaça. Ali, vivem sob uma hierarquia perversa: os gigantes ocupam tronos de lava ressecada, enquanto mortais drenados de paixão são forçados a esculpir novos salões, tecer mantos ou carregar brasas em procissões sem fim.
+## Ameaça:
+Os gigantes são parasitas da vontade. Sua mera presença suga a ambição de intrusos, substituindo-a por uma letargia melancólica. Vítimas começam a ver seus objetivos como fúteis. As paixões roubadas alimentam o sangue do gigante, fazendo sua pele translúcida brilhar mais forte. Um gigante "faminto" pode perseguir intrusos por dias, sorvendo sua chama vital até restarem apenas cascas apáticas.

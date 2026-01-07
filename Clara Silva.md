@@ -1,0 +1,1 @@
+[[Bruxa]] [[Sans-Chapeau]] da [[Ala Baixa]] de [[Portamaré]], uma mulher [[Anana]] de quarenta e poucos anos com humor notoriamente ácido. Seus encantamentos e conselhos são tão afiados quanto sua língua, e rumores dizem que seu caldeirão ferve sozinho em sua fúria constante. Segue a [[Sublime Igreja dos Mil Passos|Fé dos Passos]].
